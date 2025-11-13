@@ -28,6 +28,10 @@ cosmo x sprout/fruitcake. idm if you ship it, but people have tried forcing it o
 
 enemies-to-lovers ships
 
+Forsaken fans
+
 politics
+
+spawnism
 
 'femboy' term usage
