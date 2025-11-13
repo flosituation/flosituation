@@ -14,8 +14,6 @@ i can be blunt if something's bothering me. i'm also bad at explaining & have a 
 
 i believe my ocs are alive, feel their own things, have their own interests, etc.
 
-idm if you cuddle or hide behind me, but pls don't boop repetitively or cover me intentionally (i don't have a td/tt, however, it bothers me)
-
 i'm easier to speak to in whispers as i'm off-tab usually
 
 ### <ins>DNI</ins>
