@@ -8,6 +8,7 @@
 <summary>
  abt me　+　byi　+　dni
 </summary>
+ 
 hey, i'm cobalt, or flo. i'm not quite talkative, but i'm an easy-going, friendly person.
 
 20 yrs old ﹒ 12.07 ♐
