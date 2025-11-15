@@ -46,3 +46,7 @@ politics
 spawnism
 
 'femboy' term usage
+
+</details>
+
+[![Hits](https://hits.sh/github.com/flopng/hits.svg?label=visitors&color=0047ab&labelColor=0050c2)](https://hits.sh/github.com/flopng/hits/)
