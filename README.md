@@ -55,6 +55,8 @@ betilla x rayman shippers
 
 crazy dave x dr. zomboss shippers
 
+ginger x sprout / don't tell cosmo shippers
+
 pedo/rape jokes
 
 spawnism
@@ -64,6 +66,8 @@ spawnism
 enemies-to-lovers ships
 
 Forsaken fans
+
+fruitcake fans
 
 politics
 
