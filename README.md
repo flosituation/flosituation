@@ -49,7 +49,7 @@ i'm easier to speak to in whispers as i'm mostly off-tab
 
 basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolita, "maps"/pedos, racist, zoophile)
 
-any vivziepop media, blueycapsules, countryhumans, dream/quackitysmp, five nights in anime, jonochrome, rebornica, south park, the coffin of andy and leyley
+blueycapsules, countryhumans, dream/quackitysmp, five nights in anime, hb/hh/vivziepop apologists, jonochrome, rebornica, south park, the coffin of andy and leyley
 
 betilla x rayman shippers
 
@@ -83,7 +83,7 @@ politics
   games
 </summary>
 
-Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Enter The Gungeon | Fallout 76 | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma | more I can't remember
+Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Rock Galactic | Enter The Gungeon | Fallout 76 | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma | more I can't remember
 </details>
 
 <details>
