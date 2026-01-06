@@ -6,7 +6,7 @@
 
 <details>
 <summary>
-  abt me
+𓎟　˚　basic info
 </summary>
   
 cobalt/flo ﹒⠀she / her⠀﹒⠀EST
@@ -23,7 +23,7 @@ i don't interact first (unless i'm crowning one's pony) as i'm quite shy, but i'
 
 <details>
 <summary>
-  before you interact
+⁺　.　　before you int　"
 </summary>
 
 don't associate me w/my friends. i don't agree w/everything they do/say.
@@ -44,7 +44,7 @@ i'm easier to speak to in whispers as i'm mostly off-tab
 
 <details>
 <summary>
-  do not interact + thin ice
+.　　don't interact　╱　iwc/iwec
 </summary>
 
 basic dni criteria (ableist, antisemitic, com/dark/proshipper, homo/transphobic, lolita, "maps"/pedos, racist, zoophile)
@@ -80,7 +80,7 @@ politics
 
 <details>
 <summary>
-  games
+┊　games
 </summary>
 
 Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Rock Galactic | Enter The Gungeon | Fallout 76 | Five Nights At Freddy's | Fortnite | Garry's Mod | Garten Of Banban | GTA V | Left 4 Dead 2 | Mario | Mortal Kombat | One Night At Flumpty's | PalWorld | Payday 2 + 3 |  Pizza Tower | *Plants Vs. Zombies* | *Pokemon* | Poppy Playtime | Rain World | *Rayman* | Risk of Rain 2 | Roblox | Rocket League | *Sly* | Sonic | Spore | Stardew Valley | Terraria | The Sims 4 | Totally Accurate Battle Simulator | Webfishing | Zuma | more I can't remember
@@ -88,7 +88,7 @@ Amnesia | Animal Crossing | Buckshot Roulette | Bugsnax | Club Penguin | Deep Ro
 
 <details>
 <summary>
-  hobbies
+—　hobbies
 </summary>
 
 Doing voice impressions | drawing | listening to music | playing video games
@@ -96,7 +96,7 @@ Doing voice impressions | drawing | listening to music | playing video games
 
 <details>
 <summary>
-media
+◟ media
 </summary>
 
 Auromancy | Beavis and Butthead | Blue's Clues | Care Bears | Child's Play (excl. 2019) | Cold Ones | Cr1tiKaL | Fresh Cut Slim | Ghost Adventures | Indiana Jones | Markiplier | MrHalloweenJunkie | Poofesure | Pyrocynical | Rick and Morty | Shrek | Smiling Friends | SomeOrdinaryGamers | The Brave Little Toaster | The Librarian | The Wiggles (w/the og cast) | Toy Story | WickedWiz
