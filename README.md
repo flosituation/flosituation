@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://file.garden/Z0TC-0mCggxGeVLO/Pony%20Town%20stuff/Flo%20PT.gif)
+![](https://file.garden/Z0TC-0mCggxGeVLO/Pony%20Town%20stuff/Flo%20Pony%20Town.gif)
 
 [Atabook](https://cobaltpng.atabook.org/) ﹒ [Guns.lol](https://guns.lol/flopng) ﹒ [Pronouns.Page](https://en.pronouns.page/@CobaIt) ﹒ [Spacehey](https://spacehey.com/cobaltpng) ﹒ [StrawPage](https://cobaltpng.straw.page/)
 
