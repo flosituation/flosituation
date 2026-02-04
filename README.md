@@ -7,7 +7,7 @@
 
 ###
 
-Hey, I'm Cobalt. I play Pony Town to have it in the bg and chill, or sit with friends.
+Hey, I'm Flo. I play Pony Town to have it in the bg and chill, or sit with friends.
 
 As I'm above Ontario's drinking age, I'd appreciate being left out of e-drama that doesn't have to do with me, please.
 
