@@ -129,7 +129,7 @@ misc.
 
 Canon x oc ships 。Chicken Smoothie (website) 。creepypastas 。clowns 。DC 。dragons 。Disney 。Homestuck (web comic) 。marine life 。Marvel 。oc x oc ships 。pirates
 <hr> <p></p>
-</details>
+</details></details>
 <details>
 <summary>
 stamps
